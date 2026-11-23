@@ -55,6 +55,21 @@ This creamy and delicious vegan vanilla ice cream is made with coconut milk and 
 * 1 tablespoon of vanilla extract
 * Pinch of salt
 
+## 4. Tomato Egg
+
+This comforting and classic Chinese stir-fry combines tender scrambled eggs with juicy, sweet-and-savory stewed tomatoes, making it the ultimate quick meal over steamed rice!
+
+Ingredients:
+
+* 4 large eggs, beaten
+* 3 medium ripe tomatoes, cut into wedges
+* 2 stalks green onion, chopped (white and green parts separated)
+* 1 tablespoon ketchup
+* 1 tablespoon oyster sauce 
+* 1 teaspoon sugar
+* 1/2 teaspoon salt (divided)
+* 2 tablespoons cooking oil
+
 ---
 
 © 2026 Stephanie's Recipe Collections.
